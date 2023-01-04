@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KiraFeh
-- 👀 I’m interested in movies, nature, and emerging technology
+- 👀 I’m interested in photography, nature, and emerging technology
 - 🌱 I’m currently learning Computer Science at Toronto Metropolitan University
 - 📫 How to reach me: williamvonhagen@gmail.com
 
